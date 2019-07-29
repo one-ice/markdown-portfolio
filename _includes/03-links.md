@@ -1,1 +1,1 @@
-[SMU](http://smu.edu.com)
+[SMU](http://smu.edu.sg)
